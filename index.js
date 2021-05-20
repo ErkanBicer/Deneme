@@ -1,1 +1,1 @@
-//commit atabiliyorum
+//index safa için güncelleniyor
