@@ -1,1 +1,1 @@
-# Deneme
+# benim adım erkan soyadım bicer 15 yaşındayım Türkiyede yaşıyorum güzel bi evimiz ve arabamız var. oyun oynamayı severim 
